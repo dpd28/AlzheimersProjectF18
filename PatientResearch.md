@@ -1,6 +1,8 @@
 
 https://www.alz.org/alzheimers-dementia/what-is-alzheimers
+
 http://dementiapathways.ie/_filecache/6f3/c92/43-early_dementia.pdf
+
 https://www.alz.org/alzheimers-dementia/10_signs
 
 
